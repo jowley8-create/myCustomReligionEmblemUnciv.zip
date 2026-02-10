@@ -1,1 +1,1 @@
-# myCustomReligionEmblemUnciv.zip
+# myCustomReligionEmblemUnciv
